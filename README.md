@@ -59,6 +59,6 @@ Completed in 2018
 
 **GitHub:** https://github.com/Kaur453
 
-**LinkedIn:** https://www.linkedin.com/in/harshdeep-kaur
+**LinkedIn:** www.linkedin.com/in/harshdeep-kaur-6a290226a
 
 ⭐ Thanks for visiting my profile!
